@@ -1,3 +1,9 @@
+# Massage Envy Complaints
+
+Massage Envy Franchising, LLC and it's franchisees use aggressive, deceptive and unethical sales and retention techniques. I am filing a BBB complaint and will be pursuing legal counsel if my account is not immediately terminated on the date this is received.
+
+-----------------------------------------------------------------------------------------------------------
+
 
 ### Others complaints
 
