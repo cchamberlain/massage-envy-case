@@ -40,16 +40,16 @@ The form is covered in legal statements that are clearly trying to prolong the c
 
 * [Complaint submitted 10/18/2015](http://www.ripoffreport.com/r/Massage-Envy-Irvine-Northpark-Plaza/Irvine-California-92602/Massage-Envy-is-requiring-me-to-sign-additional-monetary-contracts-to-exit-my-already-exp-1262075)
 
+### Massage Envy Response
+
+* [Voicemail from corporate on 10/18/2015](https://github.com/cchamberlain/massage-envy-case/raw/master/vm-corporate-01.m4a)
+
 ### Reparations
 
 I am seeking one of the two following outcomes:
 
 * Reimbursement of my unused massage benefits ($59.99 x 10 unused massages = $599.90)
 * the ability to use my accrued massages for up to 2 years after the date of my last payment with the ability to gift them to a guest (with no 6 month restriction per guest)
-
-### Massage Envy Response
-
-* [Voicemail from corporate on 10/18/2015](https://github.com/cchamberlain/massage-envy-case/raw/master/vm-corporate-01.m4a)
 
 ### Lawsuits
 
