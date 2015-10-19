@@ -32,6 +32,13 @@ I missed the first cancellation because I was out of town. On 10/17/2015 I calle
 
 The form is covered in legal statements that are clearly trying to prolong the cancellation process, even post-expiration of the contract. Specifically it says that the cancellation requires a 30-day written notice and that the cancellation requiest must be reviewed and approved by a clinic manager, and that the clinic must first discuss cancellation options and procedures with me. This is another clear purposeful verbal contradiction from their sales team.
 
+### Reparations
+
+I am seeking one of the two following outcomes:
+
+* Reimbursement of my unused massage benefits ($59.99 x 10 unused massages = $599.90)
+* the ability to use my accrued massages for up to 2 years after the date of my last payment with the ability to gift them to a guest (with no 6 month restriction per guest)
+
 ### Better Business Bureau
 
 * [Complaint submitted 10/18/2015](http://odrcomplaint.bbb.org/odrweb/public/ComplaintSubmitted.aspx?s=false&bbbid=127&complaintid=10865014&chk=IDNzc0iLRVQHz%2fHgmwPmlQ)
@@ -43,13 +50,6 @@ The form is covered in legal statements that are clearly trying to prolong the c
 ### Massage Envy Response
 
 * [Voicemail from corporate on 10/18/2015](https://github.com/cchamberlain/massage-envy-case/raw/master/vm-corporate-01.m4a)
-
-### Reparations
-
-I am seeking one of the two following outcomes:
-
-* Reimbursement of my unused massage benefits ($59.99 x 10 unused massages = $599.90)
-* the ability to use my accrued massages for up to 2 years after the date of my last payment with the ability to gift them to a guest (with no 6 month restriction per guest)
 
 ### Lawsuits
 
