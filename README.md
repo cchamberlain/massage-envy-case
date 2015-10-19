@@ -47,6 +47,10 @@ I am seeking one of the two following outcomes:
 * Reimbursement of my unused massage benefits ($59.99 x 10 unused massages = $599.90)
 * the ability to use my accrued massages for up to 2 years after the date of my last payment with the ability to gift them to a guest (with no 6 month restriction per guest)
 
+### Massage Envy Response
+
+* [Voicemail from corporate on 10/18/2015](https://github.com/cchamberlain/massage-envy-case/raw/master/vm-corporate-01.m4a)
+
 ### Lawsuits
 
 * http://legalnewsline.com/stories/510453856-massage-envy-allegedly-conducted-deceptive-unfair-business-practices
